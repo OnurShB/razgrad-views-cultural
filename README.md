@@ -1,1 +1,0 @@
-# razgrad-views-cultural
